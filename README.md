@@ -7,4 +7,4 @@
 - 💬 Ask me about anything
 - 📫 How to reach me: [email](malte.dostal@gmail.com)
 - 😄 Pronouns: he
-- ⚡ Fun fact: I waste way too much time and money
+- ⚡ Fun fact: I waste way too much time
